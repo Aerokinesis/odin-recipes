@@ -1,0 +1,1 @@
+The website has links to different recipes
